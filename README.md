@@ -100,5 +100,3 @@ To develop innovative and scalable projects by combining AI, game development, a
 ::
 
 ⸻
-
-İstersen bunu ￼ tek sayfalık “efsane CV formatı”na da dönüştürebilirim (HR görünce direkt dikkat çeken türden).
